@@ -14,4 +14,4 @@
 
 # Contact Me!!!
 
-* ['WhatsApp'](https://wa.me/6285693587969)
+* [`WhatsApp`](https://wa.me/6285693587969)
